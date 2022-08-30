@@ -1,1 +1,1 @@
-Atividades feitas em aula da faculdade
+Atividades feitas durante os módulos da faculdade 👨‍🎓 📚 
