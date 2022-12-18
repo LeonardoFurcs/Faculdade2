@@ -1,1 +1,1 @@
-Atividades feitas durante os módulos da faculdade 👨‍🎓 📚 
+### Alguns exercícios que foram feitos ou vistos nos módulos
